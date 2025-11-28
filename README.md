@@ -7,3 +7,8 @@ i will name patterns
 explain concepts
 and sharing resources(IC3,etc)
 
+# ⚠️ disclaimer
+this is a heavy topic, of course, and  i want to make it clear,
+- i wont include any actual, like names or people or yeah,
+- i will only describe the **behaviour**, and **generalized stuff** (experience -> generalized into patterns/names/concepts -> and then dive deep into examples like e.g DARVO/fallacies/guilt tripping etc)
+- i might write/draw diagrams, and explain 
