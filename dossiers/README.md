@@ -111,3 +111,11 @@ because I had tried to understand why did they even do all this?  Now **I still 
 > Stay calm, and do not meet their "yelling" of how "wrong you are", and if smearing happens, give the truth to people, simple as that, dont write or do anything when you're emotional (when i cried one time, I headed out to the woods and yeah, I came home with a clearer head) < it really helps a lot!
 
 # The point of writing this isn’t to revisit personal events — it’s to map out the patterns so  others can recognize them and protect themselves early.
+
+### Now, even If i linked resources before, 
+### here it is again cuz you cant stress this enough:
+> **Personal Note**  🫂 hugs to you all!
+> and, if i can say a word to you who reads this: If you have been bullied or, been treated badly, i send u a virtual hug, really, do take care
+
+- https://www.stopbullying.gov/cyberbullying/how-to-report
+- https://www.ic3.gov/
