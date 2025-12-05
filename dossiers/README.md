@@ -119,3 +119,16 @@ because I had tried to understand why did they even do all this?  Now **I still 
 
 - https://www.stopbullying.gov/cyberbullying/how-to-report
 - https://www.ic3.gov/
+
+
+## About reporting:
+
+When something feels wrong or unsettling, reporting is a healthy and responsible step — even if you're unsure whether it “qualifies” or feels “serious enough.”
+Hesitation is normal, especially when you’re nervous, but it’s better to create a record early than to stay silent in a situation that later turns out to be serious.
+
+Reporting does not mean you are accusing someone of a crime — it simply creates documentation, helps pattern-detection, and protects both you and others.
+
+And because you never truly know whether you’re the only one experiencing a problem — or one of many — it is still okay to report even when you feel uncertain. Most organizations encourage this for a reason.
+
+## TLDR:
+### Better safe than sorry.
